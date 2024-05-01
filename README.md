@@ -8,3 +8,4 @@
 
 😄 Pronouns: He/Him
 
+⚡ Fun fact: I once built a self-balancing robot that won 3rd place in a national robotics competition!
